@@ -1,5 +1,12 @@
-### Hi there 👋
-
+### HEY DEAR IM ARIFUL 143 🥰
+### MY OWNER ARIFUL BBZ 🥰
+### ANY HELP CONTACT MY OWNER 
+### VIEW MY OWNER DATEILS 😇
+### NAME : ARIFUL BBZ 😌
+### AGE 15 YEAR  
+### WORK : STUDY
+### FROM : SYLHET,BANGLADESH 
+### TNX FOR VIEW MY OWNER DATEILS 
 <!--
 **ariful-bbz/ARIFUL-BBZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
