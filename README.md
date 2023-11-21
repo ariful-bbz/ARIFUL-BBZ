@@ -1,5 +1,14 @@
-### Hi there 👋
-
+### Hi IM ARIFUL 143 🥰
+### MY OWNER ARIFUL BBZ 😇
+### FB ID : https://www.facebook.com/arifulbbz?mibextid=9R9pXO
+### TIK TOK ID tiktok.com/@ariful_bbz
+### ANY HELP CONTACT MY OWNER ARIFUL BBZ 
+### MY OWNER DETAILS 
+### NAME : ARIFUL BBZ 
+### AGE : 15
+### WORK : STUDY
+### FROM : SYLHET,BANGLADESH 
+### TNX FOR VIEW MY OWNER DATEILS
 <!--
 **ariful-bbz/ARIFUL-BBZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
